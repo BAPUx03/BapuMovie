@@ -13,7 +13,7 @@
 
 > 📥 **Click Below to Visit Now!**  
 
-[![🟢 Live Website](https://img.shields.io/badge/🔴%20Live%20Website-Click%20Here-red?style=for-the-badge)](https://bapumovie33.blogspot.com/)  
+[![🟢 Live Website](https://img.shields.io/badge/🔴%20Live%20Website-Click%20Here-red?style=for-the-badge)](https://bapux03.github.io/BapuMovie//)  
 
 ---
 
